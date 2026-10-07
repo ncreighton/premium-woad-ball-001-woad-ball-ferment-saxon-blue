@@ -1,0 +1,2 @@
+# premium-woad-ball-001-woad-ball-ferment-saxon-blue
+Struggling to track your woad ball fermentation batches and dip ratios without losing notes across ten different apps? The Woad Ball Ferment &amp; Saxon Blue Dip Craft Lab keeps your entire natural indigo workflow—from fermentation logs to Saxon blue dip testing—organized in one beautiful, searchable Notion workspace.  This template eliminates guesswor
